@@ -1,0 +1,1 @@
+# dekopinda-way-kanan
